@@ -3,7 +3,7 @@
 <div align="center">
 
 
-⠀ ![](https://komarev.com/ghpvc/?username=rehabklok&abbreviated=true&label=hi&color=8B0000)
+⠀ ![](https://komarev.com/ghpvc/?username=rehabklok&abbreviated=true&label=fans&color=8B0000)
 
 ${{\color{#FF0000}{\textsf{ "doubles" dni, you guys are fakes }}}}$
 
@@ -17,3 +17,5 @@ ${{\color{#B22222}{\textsf{ ann , ezra , lee + oomfs  }}}}$
 ${{\color{#DD727A}{\textsf{coolest people ever!˳ ֹ.}}}}$
 
 ${{\color{#FF0000}{\textsf{ ʙʏɪ morally a bad person , iwec }}}}$
+
+${{\color{#B22222}{\textsf{ tiktok @wartoothsmut , twt @fawnhalen , discord @klokateers  }}}}$
