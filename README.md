@@ -24,3 +24,5 @@ ${{\color{#B22222}{\textsf{ tiktok @wartoothsmut , twt @fawnhalen , discord @klo
 
 ${{\color{#FF0000}{\textsf{ hold me. with all your tentacles now. }}}}$
 
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQIbOdEtZXSNHkwXWnMkjQd_Q5FfYgc2b7gKg&amp;s" alt="Celebrating Pickles the Drummer from Metalocalypse"/>
+
