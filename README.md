@@ -9,7 +9,7 @@
 
 hi im tyler or wutever..  they them cuz im woke MASC LEANING!!!
 
-5teen in pony town years , TAKEN ILMBF SO MUCH !!! MY EVAN 
+5teen in pony town years , TAKEN ILMBF SO MUCH !!! MY EVAN !! THE TOKI TO MY PICKLESSS
 
 i'll often be seen with friends, dont be scared to say hi ok?
 
