@@ -4,12 +4,12 @@
 
 <div align="center">
 
-⠀ ![](https://komarev.com/ghpvc/?username=deathcock&abbreviated=true&label=bars&color=8B0000)
+⠀ ![](https://komarev.com/ghpvc/?username=deathcock&abbreviated=true&label=skulls&color=000000)
 
 
 hi im tyler or wutever..  they them cuz im woke MASC LEANING!!!
 
-5teen in pony town years 
+5teen in pony town years , TAKEN ILMBF SO MUCH !!! MY EVAN 
 
 i'll often be seen with friends, dont be scared to say hi ok?
 
@@ -42,9 +42,17 @@ my intrests include fight club, 𝐣𝐚𝐜𝐤𝐚𝐬𝐬, metalocalypse, van
 
  ![](https://media.tenor.co/ZKDPCut76soAAAAd/in-love-the-deep.gif)
 
+ ^
+ deepickles, thats me and anns crackship ok?? 
+
+ ![](https://i.postimg.cc/nrCS5zmr/Screenshot-2026-06-30-6-53-44-PM.png)
+
 
 </div>
 
+ok  bye strawpage soon
+
+![](https://media.tenor.com/3jYabkk-L00AAAAM/the-deep-the-deep-the-boys.gif)
 
 
 
