@@ -18,7 +18,7 @@
 
 
 
-![]()
+![](https://cdn.quotesgram.com/img/30/29/1842694928-2-a-Clockwork-Orange-quotes.gif)
 
 
 
